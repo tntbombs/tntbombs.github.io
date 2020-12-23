@@ -15,4 +15,4 @@ Sources:
 * Pennsylvania bill regarding sealing evictions: https://legiscan.com/PA/bill/HB2382/2019
 Information regarding renter stimulus plan gathered from various sources, including employees of the companies who are spearheading the effort. Rhino: https://www.sayrhino.com/. Leaselock: https://leaselock.com/zero-deposit/. Jetty Insurance: https://www.jetty.com/property-management/security-deposit/.
 
-
+Transcript: https://docs.google.com/document/d/179bA6f51sQ_zji3PNAAs9tDhs-MwxAvdayrZmp8M84s/edit?usp=sharing.
