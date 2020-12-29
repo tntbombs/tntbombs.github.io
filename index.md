@@ -6,7 +6,7 @@ Hey! Welcome to TnT Bombs, a fresh new podcast where we discuss a wide range of 
 
 Our shownotes, which will include the sources that we used in our episodes, will be available at this website. Please note that this website's URL may change, so it's best to keep [this stable URL](http://rebrand.ly/tntbombs) as the web-address you save for our podcast. 
 
-Our podcast is available on the following platforms: [Anchor](https://anchor.fm/tnt-bombs), [Breaker Audio](https://www.breaker.audio/tnt-bombs), [Castbox](https://castbox.fm/channel/id3648432), [Google Podcasts](https://podcasts.google.com/feed/aHR0cHM6Ly9hbmNob3IuZm0vcy80NTNlMjMwNC9wb2RjYXN0L3Jzcw), [Pocket Casts](https://pca.st/dpwa39f0), [RadioPublic](https://radiopublic.com/tnt-bombs-Wwv4NL), and [Spotify](https://open.spotify.com/show/0BiNWp8cTFvHncxRzD7Goj). We are working on making our podcast availalble on additional platforms. If there's a specific platform you'd like to see our podcast on, feel free to [drop us an email](mailto:tntbombspodcast@gmail.com).
+Our podcast is available on the following platforms: [Anchor](https://anchor.fm/tnt-bombs), [Breaker Audio](https://www.breaker.audio/tnt-bombs), [Castbox](https://castbox.fm/channel/id3648432), [Google Podcasts](https://podcasts.google.com/feed/aHR0cHM6Ly9hbmNob3IuZm0vcy80NTNlMjMwNC9wb2RjYXN0L3Jzcw), [Pocket Casts](https://pca.st/dpwa39f0), [RadioPublic](https://radiopublic.com/tnt-bombs-Wwv4NL), [Spotify](https://open.spotify.com/show/0BiNWp8cTFvHncxRzD7Goj), and [Apple Podcasts](https://apple.co/3aLY2zr). We are working on making our podcast availalble on additional platforms. If there's a specific platform you'd like to see our podcast on, feel free to [drop us an email](mailto:tntbombspodcast@gmail.com).
 
 ## Episode Notes
 
