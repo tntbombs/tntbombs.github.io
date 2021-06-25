@@ -25,6 +25,18 @@ Sources:
 
 [Transcript available here](https://docs.google.com/document/d/179bA6f51sQ_zji3PNAAs9tDhs-MwxAvdayrZmp8M84s/edit?usp=sharing).
 
+### Episode 2 - School Reopening
+
+Sources:
+* [Inslee orders schools to reopen](https://kuow.org/stories/now-is-the-time-wash-gov-jay-inslee-orders-schools-to-reopen-by-apr-19th)
+* [Districts plan full reopening in fall](https://mynorthwest.com/2896221/doh-urges-schools-reopen-fully-fall-seattle-prepares/)
+* [Instructional time calculations](https://bsd405.org/2021/04/bellevue-school-district-releases-full-memorandum-of-understanding-on-back-to-buildings-plan/)
+* [BSD teacher strikes](https://www.washingtonpolicy.org/publications/detail/teachers-union-in-bellevue-goes-on-strike-to-keep-schools-closed)
+* [Current K12 vaccine requirements](https://www.doh.wa.gov/Portals/1/Documents/Pubs/348-051-SchoolChart2020-2021.pdf)
+* [Washington public universities COVID vaccine requirements](https://www.seattletimes.com/seattle-news/education/all-students-need-to-be-vaccinated-by-fall-university-of-washington-announces/)
+* [Prerequisites for vaccine mandate](https://www.seattletimes.com/seattle-news/education/washington-state-wont-yet-consider-a-covid-19-vaccine-mandate-in-schools/)
+
+[Transcript availalble here](https://docs.google.com/document/d/1OAmGLaG8oZ6lbuM82SUB5l6mr9DZJV0SWOPJethJYsg/edit?usp=sharing)
 
 
 
