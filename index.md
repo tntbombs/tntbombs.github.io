@@ -35,6 +35,9 @@ Sources:
 * [Current K12 vaccine requirements](https://www.doh.wa.gov/Portals/1/Documents/Pubs/348-051-SchoolChart2020-2021.pdf)
 * [Washington public universities COVID vaccine requirements](https://www.seattletimes.com/seattle-news/education/all-students-need-to-be-vaccinated-by-fall-university-of-washington-announces/)
 * [Prerequisites for vaccine mandate](https://www.seattletimes.com/seattle-news/education/washington-state-wont-yet-consider-a-covid-19-vaccine-mandate-in-schools/)
+* [Timeline for vaccine approval for 5-11 year olds](https://www.huffpost.com/entry/pfizer-covid-vaccine-ages-2-to-11_n_609216ece4b09cce6c244432)
+* [Bellevue Virtual Academy program](https://bsd405.org/programs/bsd-virtual-academy/)
+* We sourced information for how school clubs and activities were affected by asking students and teachers from across the Puget Sound.
 
 [Transcript availalble here](https://docs.google.com/document/d/1OAmGLaG8oZ6lbuM82SUB5l6mr9DZJV0SWOPJethJYsg/edit?usp=sharing)
 
